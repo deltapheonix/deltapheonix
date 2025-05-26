@@ -1,4 +1,4 @@
-Hi, I’m @deltapheonix
+Hi, I’m @deltaphoenix
 - I’m interested in :coffee: and :computer:
 - You can reach me at [LinkedIn](https://www.linkedin.com/in/doney-peters-43b71650/)
 
